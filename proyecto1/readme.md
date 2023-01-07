@@ -1,1 +1,1 @@
-HOLA RODOLFO
+El contenido de esta carpera se utiliza de manera instructiva
